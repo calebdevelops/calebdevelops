@@ -1,6 +1,6 @@
-Yo, I'm Calebdevelops (CDev for short and also what i go by)
-I'm a programmer, mostly web dev but I know most mainstream langs
-If you need help shoot me a dm or email (preferably DM)
+Yo, I'm Calebdev, Cdev or calebdevelops, whichever you see it's probably me!
+I'm a fullstack webdev, I charge only $250 for full sites and you only pay when I finish
+If you're interested, dm me or shoot me an email :)
 Discord: calebdevelops
 email: calebdevelops@gmail.com
 :D
